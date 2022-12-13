@@ -1,0 +1,2 @@
+# deceptionsnapshots
+non-extreme game
